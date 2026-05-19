@@ -1,1 +1,0 @@
-# -github.com-Bwar351-kurd-ai-studio-new-main
